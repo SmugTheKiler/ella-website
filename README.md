@@ -1,2 +1,0 @@
-# ella
-Do NOT COPY
